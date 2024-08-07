@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **prasadsb240801@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11AgK8EdyekFymLTIyS3x56Wjpv9e9EFX/view?usp=drive_link](https://drive.google.com/file/d/11AgK8EdyekFymLTIyS3x56Wjpv9e9EFX/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/11AgK8EdyekFymLTIyS3x56Wjpv9e9EFX/view?usp=drive_link](https://drive.google.com/file/d/1HgtQjIB4odT-ktdGzw6W2yo6Se1VJiOt/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
